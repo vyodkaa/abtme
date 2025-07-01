@@ -1,6 +1,6 @@
-hello there, im vyodka, ure probably reading this because u clicked on me on ponytown, i assume. (there's no way someone would look at my profile otherwise)
+hello there, im vyodka, ure probably reading this because u clicked on me on ponytown, i assume. (there's no way someone would look at my profile otherwise) i usually hangout in pony town at the CH area, and sometimes at the left side of the library.
 
-im a bit nervous to talk to people first but, if you want to talk to me first go ahead! don't be afraid to open up to me, i tolerate every ship.
+im a bit nervous to talk to people first but, if you want to talk to me first go ahead! don't be afraid to open up to me, i tolerate every ship. im an ISTP-T.
 
 though please do not interact with me if u:
 - are homophobic, racist, etc. (the usual criteria)
@@ -20,6 +20,8 @@ please int if:
 - u tolerate my ships
 - u are Russian (i really like Russia and i want to know more about it! i am not a freak)
 - u have ocs and have AUS related to countryhumans
+
+I also play other games, which are blood strike, minecraft, and war thunder.
 
 thats all for now, thank you!
 
